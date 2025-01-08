@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-My name is Olaf, and I'm about to finish my Professional Bachelors in Data Analysis.
+My name is Olaf, and I'm about to finish my Professional Bachelors in Data Analysis. (January 2025)
 
 I'm interested in all things related to data and how its used to improve businesses!
 
